@@ -1,5 +1,3 @@
-## Our Group
-
 The Invertebrate Microbiology Group, led by Associate Professor Caroline Hauxwell, conducts original research in the biology, ecology and commercial use of microorganisms in agriculture. 
 
 Current projects include:
